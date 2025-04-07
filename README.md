@@ -1,6 +1,16 @@
 # portfolio
 my portfolio links
 
+https://adscalify.com/
+
+https://estoraat.com/
+
+https://www.meatsdubai.com/
+
+https://trustnapkins.com/
+
+
+
 https://statentools.com/
 
 https://butterfly.com.pk/
